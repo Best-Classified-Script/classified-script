@@ -12,7 +12,7 @@ If you are looking to launch your own classified marketplace like Dubizzle or OL
 Best Classified Script offers a pre-built and fully customizable Classified script for startups and entrepreneurs who are looking to start their classified marketplace business. By using this pre-built script, you can minimize your costs and launch your platform in 24 hours. By using this Classified Clone Script, you can generate significant revenue from multiple streams.
 
 ### Features of Our Classified Script
-![Image](https://github.com/user-attachments/assets/b246983d-aebb-4a91-936e-6308cd5dfbaa)
+![Image](https://github.com/user-attachments/assets/158d94ba-c97a-4a06-8d9f-0daa3944a81d)
 
 #### Powerful Admin Panel
 
